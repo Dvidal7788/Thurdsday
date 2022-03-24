@@ -1,1 +1,1 @@
-# Thurdsday
+# Thursday
